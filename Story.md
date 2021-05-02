@@ -1,1 +1,1 @@
-Once upon a time, in a forest, there lived a monkey along the bank of a rive, in the same forest there lived a crocodile mother and her son.
+Once upon a time, in a forest, there lived a monkey along the bank of a rive, in the same forest there lived a crocodile mother and her son. Oneday, crocodile came to the bank of the river and rested under the tree, the kind hearted monkey offered some fruits. The crocodile mother cambe back the next day for more fruits and loved them. As the days went by, the crocodile and the monkey became good friends.
